@@ -13,7 +13,8 @@
 
 
  #### problem 4
-![problem 04](https://github.com/emaan-arshad/Rep_02/assets/142867477/999f1566-ed78-4905-bc5b-588631799c62)
+![problem o4](https://github.com/emaan-arshad/Rep_02/assets/142867477/8b3478b2-81b5-4c97-a3ed-0b0eec643ba6)
+
 
 
 
