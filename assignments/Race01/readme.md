@@ -20,7 +20,9 @@
 
 
 #### problem 05
-![problem 05](https://github.com/emaan-arshad/Rep_02/assets/142867477/95cbbc14-218b-4a5c-9c16-b7a53a65738f)
+![prob 5 b race](https://github.com/emaan-arshad/Rep_02/assets/142867477/80cb4a4c-773e-4c42-a7ac-45782a2bc24f)
+
+
 
 
 
