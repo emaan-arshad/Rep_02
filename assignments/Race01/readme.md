@@ -21,7 +21,8 @@
 
 #### problem 05
 
-![q5 lab 1 race b](https://github.com/emaan-arshad/Rep_02/assets/142867477/d9dc4064-c60f-4c34-84f6-625fb844e24f)
+![20230831_183144 (1)](https://github.com/emaan-arshad/Rep_02/assets/142867477/bc7ea22e-88c1-412b-818c-caca9979842a)
+
 
 
 
